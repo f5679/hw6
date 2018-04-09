@@ -9,3 +9,6 @@
 
 ## Sketch Engine
 #### 1. ![Alt text](https://pp.userapi.com/c846520/v846520195/1e327/SFvDnt9x6Ig.jpg)
+
+#### 2. ![Alt text](https://pp.userapi.com/c846520/v846520162/1e65f/nPZk5WG3fyo.jpg)
+Если рассмотреть сочетаемость глаголов "start" и "begin" с разными дополнениями, можно видеть, что 
